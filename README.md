@@ -1,3 +1,3 @@
 # stage2
 
-Link site: leanderk.nl
+Link naar site: [leanderk.nl]
